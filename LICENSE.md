@@ -1,4 +1,4 @@
-# 
+# Profissional birdeye sniper bot fluxo de trabalho para Mac OS | VIP birdeye sniper bot fluxo de trabalho para PC Windows. Com notificações de alerta e varredura de pools de liquidez — otimizado para máximo desempeño en cada plataforma.
 
 
 
